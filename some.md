@@ -24,3 +24,6 @@ lsdkjfndekjfn
 kdjfnedfkj
 
 
+Здесь была Валя
+
+И ушла 
